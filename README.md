@@ -1,3 +1,4 @@
+## Tips on how you can be effective in class as a student.
 Friends today I am going to tell you in this article that, how a student can be effective in class. If you are a student so, this article is for you. And you will read here how you can be effective in your class as a student. I will tell you clearly in the article what should be a student’s attitude and his/her behavior. And I will display many tips here about which will help you to be an effective student in your class. 
 Those who are smart students always know how to be an effective student. This would separate them from others. If you also want to know how a student should balance the study and life, so read this article till the end. So let's know what the qualities of a promising and effective student are. 
 
